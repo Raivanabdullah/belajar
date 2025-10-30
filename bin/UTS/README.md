@@ -1,3 +1,3 @@
 Nama:M.Raivan Abdullah
 NPM : 07352311087
-Link Youtube:https://youtube.com/live/PIYCsWULJoM
+Link Youtube:https: https://youtube.com/live/8m5nwkVNbP0
